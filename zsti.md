@@ -5,4 +5,4 @@
 #### Podoba mi się poziom nauki na lekcjach zawodowych oraz poczucie humoru i podejście do uczniów i lekcji niektórych nauczycieli, lekcje wtedy nie są nudne i potrafią zainteresować.
 
 ## 3. Co zmieniłbyś w ZSTI?
-#### Napewno zmieniłbym plan lekcji, żebym mógł wcześniej wracać do domu, a jeśli chodzi o inne rzeczy to raczej nie zmieniłbym nic, przynajmniej nic nie przychodzi mi teraz do głowy.
+#### Napewno zmieniłbym plan lekcji, żebym mógł wcześniej wracać do domu, a jeśli chodzi o inne rzeczy to raczej nie zmieniłbym nic, przynajmniej nic nie przychodzi mi teraz do głowy, może wymagania niektórych przedmiotów nie-zawodowych.
